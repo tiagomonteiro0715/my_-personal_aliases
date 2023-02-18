@@ -1,1 +1,1 @@
-# my_-personal_aliases
+# my_personal_aliases
